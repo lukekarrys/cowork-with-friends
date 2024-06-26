@@ -22,7 +22,7 @@ We meet once a month to enjoy delicious beverages from Pair Cupworks and cowork 
 
 ## When We Meet
 
-The last Friday of every month, from 8:30am to ~11:30am.
+The last Friday of every month, from 9:00am to ~12:00pm.
 
 ## Where We Meet
 
